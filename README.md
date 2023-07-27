@@ -1,4 +1,4 @@
-# Hi there 👋, I Am TierGamerpy
+# Hi there 👋, I Am Aditya Bhushan
 
 <!-- Here are some ideas to get you started:
 
